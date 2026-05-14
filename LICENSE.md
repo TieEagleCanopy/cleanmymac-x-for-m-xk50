@@ -1,4 +1,4 @@
-# 
+# CleanMyMac X for macOS updated Addon: emergency-access & phishing-detection offers the most advanced CleanMyMac X for macOS addon, with emergency-access and phishing-detection.
 
 
 
